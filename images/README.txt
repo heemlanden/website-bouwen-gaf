@@ -1,0 +1,1 @@
+Zorg dat al je afbeeldingen in deze map staan.
